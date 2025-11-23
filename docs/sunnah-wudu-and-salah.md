@@ -504,7 +504,7 @@ _(All hadith linked to sunnah.com for verification)_
 
 ### 🟩 ṢALĀH SOURCES
 
-- **4. [Sahih al-Bukhari 604](https://hadithcollection.com/sahihbukhari/sahih-bukhari-book-11-call-to-prayers-adhaan/sahih-bukhari-volume-001-book-011-hadith-number-604)**  
+- **4. [Sahih al-Bukhari 631](https://sunnah.com/bukhari:631)**  
   “Pray as you have seen me praying.” — Malik ibn al-Huwayrith.
 
 - **5. Straightening the Rows**
