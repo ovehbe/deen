@@ -244,6 +244,236 @@ Optional:
 
 ---
 
+# 🕯️ **SECTION 4 — Detailed Salah Walkthrough (Full Explanation)**  
+### _A more comprehensive, deeper description of each movement and ruling — based on Sheikh Assim Al-Hakeem_
+
+This appendix provides a **full-length, detailed flow** of the Prophet’s ﷺ prayer, useful for deeper study.  
+The main guide above remains the simplified quick reference.
+
+---
+
+# 🔹 **1. Standing (Qiyām) — The First Pillar**
+
+- Stand **upright**, facing the qiblah.  
+- Feet naturally apart — **not** too wide, **not** touching.  
+- Eyes focused on the place of sujūd.  
+- Hands relaxed before starting.
+
+### ❌ Common Mistakes
+- Looking around, up, or at people.  
+- Standing with feet extremely wide or too close.  
+- Closing eyes intentionally.
+
+---
+
+# 🔹 **2. Intention (Niyyah)**
+
+- Stated in the **heart only**.  
+- You must know which prayer you are performing (Dhuhr, ‘Asr, etc).  
+- No verbal formula.  
+### ❌ Saying intention aloud = innovation.
+
+---
+
+# 🔹 **3. Takbīrat al-Ihrām (Opening Takbīr) — Pillar**
+
+- Raise hands **before**, **during**, or **after** saying *Allahu Akbar*.  
+- Palms face qiblah.  
+- Fingers extended naturally (not stiff).  
+- Hands either:
+  - To shoulder height (palms aligned with shoulders)  
+  - Or to ear level (fingertips aligned with ears)
+
+### ✔ Become “in prayer” only after this Takbīr.
+
+---
+
+# 🔹 **4. Hand Placement (Sunnah)**
+
+Place **right hand over the left**:
+- On the chest region  
+- Either **grasping the wrist** or **placing the hand flat**  
+- Avoid strange positions (too high/low, tilted bodies)
+
+---
+
+# 🔹 **5. Opening Supplication (Du‘ā’ al-Istiftāḥ)** — Sunnah
+
+Example:
+
+> **Subḥānaka Allāhumma wa biḥamdik, wa tabārakasmuk, wa ta‘āla jadduk, wa lā ilāha ghayruk.**
+
+You may use other authentic versions.
+
+---
+
+# 🔹 **6. Seeking Refuge & Basmalah** — Sunnah
+
+- *A‘ūdhu billāhi min ash-shayṭāni r-rajīm*  
+- “Bismillāh ar-Raḥmān ar-Raḥīm” (Sunnah in prayer)
+
+---
+
+# 🔹 **7. Reciting Sūrat al-Fātiḥah** — **Pillar**
+
+- Pause briefly at the end of **each ayah**.  
+- Recite calmly with *ṭuma’nīnah*.
+
+After completing:
+
+> **Āmīn**
+
+Not required but Sunnah.
+
+---
+
+# 🔹 **8. Reciting an Additional Surah** — Sunnah
+
+- Any surah, even one verse minimum.  
+- Not mandatory.
+
+### ❌ The imam **does not** pause for people to recite Fātiḥah after “Āmīn”.
+
+---
+
+# 🔹 **9. Going into Rukū‘ (Bowing)**
+
+- Say **Allahu Akbar while moving**.  
+- Back straight, head level with back.  
+- Hands firmly grasp knees with fingers spread.
+
+### Dhikr of Rukū‘ (Minimum once)
+> **Subḥāna Rabbiyal-‘Aẓīm**
+
+### ❌ Not allowed:
+- Saying dhikr while *going down* or *rising*  
+- Bowing too shallow or too deep
+
+---
+
+# 🔹 **10. Rising from Rukū‘**
+
+- **Raise hands** again (Sunnah).  
+- Say:
+  - **Sami‘allāhu liman ḥamidah** (imam/individual)
+  - **Rabbanā wa laka al-ḥamd** (everyone)
+
+### ❗ Must stand **fully upright** (pillar).
+
+### Hand position  
+- Many scholars: hands at the sides  
+- Some evidence: right over left on chest  
+Both valid.
+
+---
+
+# 🔹 **11. Going into Sujūd (Prostration)**
+
+- Say **Allahu Akbar while moving**.  
+- Hands go down first or knees first — both valid scholarly positions.
+
+### **7 Body Parts Touch the Ground**
+1. Forehead  
+2. Nose  
+3–4. Hands (palms)  
+5–6. Knees  
+7–8. Toes (two feet count as two limbs or one unit depending on narration — but both must touch)
+
+### Proper Form
+- Arms raised (not touching sides)  
+- Stomach off thighs  
+- Toes bent toward qiblah  
+- Fingers facing qiblah
+
+### Minimum Dhikr
+> **Subḥāna Rabbiyal-A‘lā**
+
+### Sujūd is the BEST time for du‘ā’.
+
+---
+
+# 🔹 **12. Sitting Between the Two Sujūd**
+
+- Say **Allahu Akbar** while rising.  
+- Sit in **iftirāsh** (left foot under, right foot upright).
+
+### Minimum Dhikr
+> **Rabbi ighfir lī**
+
+May repeat as much as you like.
+
+---
+
+# 🔹 **13. Second Sujūd**
+Repeat previous sujūd.
+
+---
+
+# 🔹 **14. Standing for Next Rak‘ah**
+
+- Optional: brief *jalsat al-istirāḥah* (resting sit).  
+- Say **Allahu Akbar** and stand.
+
+### ❗ **No** raising hands here.
+
+---
+
+# 🔹 **15. Second Rak‘ah**
+Same as first, but **no opening dua** this time.
+
+---
+
+# 🔹 **16. First Tashahhud (After 2 Rak‘āt)**
+
+### Sitting  
+- **Iftirāsh** (left foot under, right foot upright)
+
+### Finger  
+- Index finger pointing and **moving slightly** toward qiblah.
+
+### Recitation  
+- Tashahhud ONLY (no salawat).
+
+---
+
+# 🔹 **17. Third/Fourth Rak‘ah**
+- Only **Fātiḥah** recited (no extra surah).  
+- Same movements as first two.
+
+---
+
+# 🔹 **18. Final Tashahhud (Last Rak‘ah)**
+
+### Sitting Position
+- **Tawarruk**  
+  - Left leg under right shin  
+  - Sitting on left hip  
+  - Right foot upright
+
+### Recitation
+- Full Tashahhud  
+- Salāt al-Ibrāhīmiyyah  
+- Personal du‘ā’ before taslīm
+
+---
+
+# 🔹 **19. Taslīm (Ending the Prayer)**
+
+- Turn right:
+  > **As-salāmu ‘alaykum wa raḥmatullāh**
+- Then left:
+  > **As-salāmu ‘alaykum wa raḥmatullāh**
+
+### Sunnah
+- Turn enough that followers can see each cheek.
+
+### ❌ Do NOT:
+- Move hands like indicators  
+- Rush the salam with the imam  
+- Start moving before imam completes both sides
+
+---
+
 ## 📚 Sources & Hadith References
 
 _(All hadith linked to sunnah.com for verification)_
